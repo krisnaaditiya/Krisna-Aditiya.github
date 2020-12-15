@@ -1,2 +1,1 @@
-# Krisna-Aditiya.github
-For you
+Hello adek sayang
